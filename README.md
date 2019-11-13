@@ -6,6 +6,7 @@
 - Emotional First Aid by Guy Winch
 - Mistakes Were Made (But not by me) by Carol Tavris
 - Brief Answers to the Big Questions by Stephen Hawking
+- Grit: Why passion and resilience are the secrets to success by Angela Duckworth
 
 ## Books I haven't read yet but look good
 - Out of my Head: On the Trail of Consciousness by Tim Parks
